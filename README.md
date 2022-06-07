@@ -1,6 +1,6 @@
 ### The three hearts of philosophy:  
-### The heart of self-admonishment;  
-### The heart of praise;  
+### The heart of self-admonishment.  
+### The heart of praise.  
 ### The heart of forgiveness.
 <!--
 **SongW-SW/SongW-SW** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
