@@ -1,4 +1,4 @@
-### The Three Hearts of Philosophy:  
+### The Three Beliefs of Philosophy:  
 ### The Heart of Self-Admonishment.  
 ### The Heart of Praise.  
 ### The Heart of Forgiveness.
