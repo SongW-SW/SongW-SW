@@ -1,7 +1,7 @@
 ### The Three Beliefs of Philosophy:  
 ### The Heart of Self-Admonishment.  
 ### The Heart of Commendation.  
-### The Heart of Forgiveness.
+### The Heart of Reconciliation.
 <!--
 **SongW-SW/SongW-SW** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
