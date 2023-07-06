@@ -1,5 +1,5 @@
 ### The Three Beliefs of Philosophy:  
-### The Heart of Self-Admonishment.  
+### The Heart of Self-Admonition.  
 ### The Heart of Commendation.  
 ### The Heart of Reconciliation.
 <!--
